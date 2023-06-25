@@ -7,4 +7,4 @@
 - 🌐 My website: www.toby.uz 
 - 📫 How to reach me:[Telegram](https://t.me/toby_developer) 
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: Lofi music and rain sounds give the perfect working atmosphere! 
+- ⚡ Fun fact: Lofi 🎧 and rain ☔ sounds give the perfect working atmosphere! 
